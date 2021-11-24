@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CarlosFrog
 - 👀 I’m interested in bots and coding!
-- 🌱 I’m currently learning coding (obviusly)
+- 🌱 I’m currently learning coding (obviously)
 - 💞️ I’m looking to collaborate on nothing for now,
 - 📫 How to reach me on Discord -Carlos👑#3224
 
